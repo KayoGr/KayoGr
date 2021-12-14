@@ -10,4 +10,4 @@
 ¸„.-•~¹°”ˆ˜¨   🎀  ------------------------------------------------------------------------------------------------------  🎀   ¨˜ˆ”°¹~•-.„¸
 
 
-                           ![myImage](https://media4.giphy.com/media/tTWC2ue8TTI0ZNBvA7/200.gif)
+![myImage](https://media4.giphy.com/media/tTWC2ue8TTI0ZNBvA7/200.gif)
